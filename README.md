@@ -36,6 +36,8 @@ Switch to drawing mode from design mode
 ![image](https://user-images.githubusercontent.com/113594316/199412055-fa1f658d-65f4-42c2-9c3c-78c93512e905.png)
 
 ## OUTPUT
+![EX 5 2 SELVAJOEL S (1)_page-0001 (1)](https://user-images.githubusercontent.com/122252838/213970660-a5148c82-9f52-4376-9437-58958cfc7211.jpg)
+
 
 
 ## RESULT:
